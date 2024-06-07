@@ -1,6 +1,7 @@
 exploring
 
-![doggoooooo](https://github.com/anjellyyy/anjellyyy/assets/172020069/2a79647d-ff78-44b4-83dd-b4fe0980d847)
+![dawg](https://github.com/anjellyyy/anjellyyy/assets/172020069/7dd58ef6-b7d5-4c73-8751-ecda1570f3a7)
+
 
 
 
